@@ -3,3 +3,5 @@ abcdefghigklmnopqstuvwxyz
 ABCDEFGHIJKLMNOPQRSTUVWXYZ
 
 아여어여오요우유으이
+
+가갸거겨고교구규그기
